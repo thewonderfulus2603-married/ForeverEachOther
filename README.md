@@ -1,4 +1,3 @@
-# thewonderus2603-married.github.io
 # Us
 ## U and Me
 ### In the Beginning 
