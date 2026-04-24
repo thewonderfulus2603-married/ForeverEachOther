@@ -3,6 +3,5 @@
 ## U and Me
 ### In the Beginning 
 ### First Meeting 
-### Start of a Romantic s
-Story
+### Start of a Romantic Story 
 ## Our Families 
